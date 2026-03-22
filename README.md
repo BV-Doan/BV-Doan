@@ -8,5 +8,5 @@ _22/10/200x_ is one day very important for me _ 🎂.
 
 ...
 
-Cntact for works:
+Contact for works:
 https://t.me/B_vDoan
